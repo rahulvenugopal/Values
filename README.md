@@ -1,3 +1,5 @@
+![](https://images.unsplash.com/photo-1532009877282-3340270e0529?ixlib=rb-1.2.1&q=85&fm=jpg&crop=entropy&cs=srgb)
+
 Inspiration to pen this post came from [Stonecharioteer's blog](https://stonecharioteer.com/posts/2021/personal-code.html). Do check out the blog, it is amazing. I came across this philosophical question somewhere in 2010 when I was in a limbo after completing my bachelor's degree in engineering. Finally, the time has arrived to write about my values.
 
 > “You are not your job, you're not how much money you have in the bank. You are not the car you drive. You're not the contents of your wallet. You are not your fucking khakis. You are all singing, all dancing crap of the world.” ~ Fight Club
@@ -18,6 +20,4 @@ Finally, I do acknowledge that I was lucky to be born to my parents with a twin 
 
 I **will** forget all the extra baggage I used to carry (primarily from my shitty decisions, attitude at that time point, and random noise). I aspire to be at my best, which I think is still to come. I will continue to teach till my body holds its fort against entropy in the world. I was a happy kid and lost my happiness for a very long period. Around 2011, I recovered it, and ever since then, I have been pleased. I want to be content and at peace all the time.
 
-Over all these years in this planet, I have glimpsed my Zen. 
-![](https://images.unsplash.com/photo-1532009877282-3340270e0529?ixlib=rb-1.2.1&q=85&fm=jpg&crop=entropy&cs=srgb)
-`to be continued`
+Over all these years in this planet, I have glimpsed my Zen. `to be continued`
